@@ -18,7 +18,7 @@
 
 
 
-To view more about this project, please proceed to our [Landing Page.](https://drive.google.com/drive/folders/1elaaVYeIcpXsKIaInBof9BXa1r763sbt)
+To view more about this project, please proceed to our [Landing Page.](https://sites.google.com/s/1wjU4dPP7f6Wb2QxUPzAfJoV6wSTdz2Ts/p/1NkN570w5u3MzU_j_zp-6VNILJb1qo1dS/edit?authuser=2)
  
 
  
